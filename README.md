@@ -7,3 +7,7 @@ Im Hendratara Pratama
 - 💬 Ask me about anything
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/hendratara-pratama-137a06221/)
 - 😄 Pronouns: Mr.
+
+My Others Profile on:
+- [Hackerrank](https://www.hackerrank.com/profile/thyrus652)
+- [Dicoding](https://www.dicoding.com/users/hendratara_pratama/academies)
